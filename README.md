@@ -1,1 +1,0 @@
-# Elementary_Continuum_Mechanics
